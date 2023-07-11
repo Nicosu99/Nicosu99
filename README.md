@@ -19,7 +19,7 @@ Puedes encontrarme en las siguientes redes sociales:
 
 - [Twitter](enlace a tu perfil de Twitter)
 - [LinkedIn](enlace a tu perfil de LinkedIn)
-- Instagram](https://www.instagram.com/nico_suarez99/)
+- [Instagram](https://www.instagram.com/nico_suarez99/)
 
 ¡No dudes en contactarme si deseas colaborar en algún proyecto o simplemente quieres saludar!
 
